@@ -6,6 +6,8 @@
 | Tamaño: 28.4 MB             |  ⭐️⭐️⭐️⭐️⭐️(5/5) |
 | Última actualización: 10/02/2025 | Categoría: Arcade |
 
+## Descarga: 🎉🎉🎉 [Minecraft APK](https://modhello.io/minecraft.html)
+
 ## **¿Qué es Minecraft APK 1.21.51.02?**
 
 Minecraft APK 1.21.51.02 es la versión más reciente del popular juego de mundo abierto desarrollado por Mojang Studios. Este título ofrece un mundo infinito donde los jugadores pueden explorar, construir y sobrevivir en un entorno generado de manera procedural. Con modos de juego variados y una comunidad activa, el juego sigue siendo uno de los más descargados en dispositivos Android.
